@@ -33,5 +33,4 @@ Es algo facíl pero no predecible.
 
   - Linkedin: linkedin.com/in/alejandro-arango-arboleda-3838022a3 
   - WhatsApp: 3205782796
-  - 
 
